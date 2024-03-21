@@ -1,4 +1,4 @@
-# [Superia Xtra 400](https://fujixweekly.com/2022/12/09/superia-xtra-400-fujifilm-x-t5-x-trans-v-film-simulation-recipe/))
+# [Superia Xtra 400](https://fujixweekly.com/2022/12/09/superia-xtra-400-fujifilm-x-t5-x-trans-v-film-simulation-recipe/)
 ![Superia Xtra 400](https://github.com/wblakecaldwell/x100vi/blob/main/images/1%20Superia%20Xtra%20400.jpeg?raw=true)
 
 # [Tri-X 400](https://fujixweekly.com/2020/06/18/fujifilm-x100v-film-simulation-recipe-kodak-tri-x-400/)
